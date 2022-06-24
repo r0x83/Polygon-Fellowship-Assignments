@@ -1,0 +1,1 @@
+All assignments done over the course of 8 weeks
